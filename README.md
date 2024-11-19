@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on what ever... 
 - 📫 How to reach me: if you know you know but never call
 - 😄 Pronouns: He
-- ⚡ not so Fun fact: AuDHD - it makes all so complicated the world we are. 
+- ⚡ not so Fun fact: AuDHD - it makes all so complicated in the world we are. 
 
 <!---
 AtelierUrban/AtelierUrban is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
